@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 lets see what this does
 
 For Markdown languages to use:
-To wriet headers: # H1, ## H2, etc.
+To write headers: # H1, ## H2, etc.
 To write in special characters: *italics*, **bold text** / _italics_ ; __bold text__
 To insert urls: [URLs](https://www.blablabla.com)
 Other options: lists, images, HTML code, email addresses see https://www.markdownguide.org/basic-syntax/
