@@ -22,18 +22,20 @@ More: Twitter, Adademia.edu, GoogleScholar
 - 2020, Director and co-producer for [We the Syrians: Peace Proposal for Syria](https://www.youtube.com/watch?v=VyAxRCCDJyQ), Peace Proposal for Syria, supported by [Operazione Colomba Peace Corps](http://www.operazionecolomba.it/noisiriani).
 - 2018, Producer for [Scirocco: A Case Against Deportations](https://vimeo.com/278007474), Rosa Luxemburg Stiftung North Africa Office. 
 
-## Media articles
+## Media articles (co-authored with Roshan De Stone)
 - February 2021, Making sense of Europe's response to the Arab Spring, [The New Arab](https://english.alaraby.co.uk/english/indepth/2021/2/3/making-sense-of-europes-response-to-the-arab-spring)
-- June 2019, The failed reconstruction of Lebanon's Nahr al-Bared Palestinian camp, [The New Arab]
-- April 2019, Lebanese drug rehab programme struggles to get going, [The New Arab]
-- February 2019, Lebanese army arrests 32 Syrian refugees in dawn raid, [The New Arab]
-- December 2018, Syrian return: A matter of politics or humanitarianism?, [The New Arab]
-- December 2018, Saving Syrian refugee children from becoming a lost generation, [The New Arab]
-- November 2018, Syrian displacement: A Palestinian perspective, [The New Arab]
-- November 2018, Displaced Syrian women speak out in Lebanon, [The New Arab]
-- October 2018, History reflected: Memories of Lebanese displacement to Syria, [The New Arab]
-- October 2018, Syrians in Lebanon compare risks of staying or leaving, [The New Arab]
+- February 2020, Residents of Idlib: ‘Your indifference is our death sentence’, [Al Jazeera](https://www.aljazeera.com/features/2020/2/20/residents-of-idlib-your-indifference-is-our-death-sentence)
+- June 2019, The failed reconstruction of Lebanon's Nahr al-Bared Palestinian camp, [The New Arab](https://english.alaraby.co.uk/english/indepth/2019/6/11/the-failed-reconstruction-of-lebanons-nahr-al-bared-palestinian-camp)
+- April 2019, Lebanese drug rehab programme struggles to get going, [The New Arab](https://english.alaraby.co.uk/english/indepth/2019/4/16/lebanese-drug-rehab-programme-struggles-to-get-going)
+- February 2019, Lebanese army arrests 32 Syrian refugees in dawn raid, [The New Arab](https://english.alaraby.co.uk/english/indepth/2019/2/8/lebanese-army-arrests-32-syrian-refugees-in-dawn-raid)
+- December 2018, Syrian return: A matter of politics or humanitarianism?, [The New Arab](https://english.alaraby.co.uk/english/indepth/2018/12/26/syrian-return-a-matter-of-politics-or-humanitarianism)
+- December 2018, Saving Syrian refugee children from becoming a lost generation, [The New Arab](https://english.alaraby.co.uk/english/indepth/2018/12/11/saving-syrian-refugee-children-from-becoming-a-lost-generation)
+- November 2018, Syrian displacement: A Palestinian perspective, [The New Arab](https://english.alaraby.co.uk/english/indepth/2018/11/7/syrian-displacement-a-palestinian-perspective)
+- November 2018, Displaced Syrian women speak out in Lebanon, [The New Arab](https://english.alaraby.co.uk/english/indepth/2018/11/23/displaced-syrian-women-speak-out-in-lebanon)
+- October 2018, History reflected: Memories of Lebanese displacement to Syria, [The New Arab](https://english.alaraby.co.uk/english/indepth/2018/10/24/history-reflected-memories-of-lebanese-displacement-to-syria)
+- October 2018, Syrians in Lebanon compare risks of staying or leaving, [The New Arab](https://english.alaraby.co.uk/english/indepth/2018/10/16/syrians-in-lebanon-compare-risks-of-staying-or-leaving)
 - May 2018, Return to Syria? Refugees draft grassroots proposal, [The New Arab](https://english.alaraby.co.uk/english/indepth/2018/5/14/return-to-syria-refugees-draft-grassroots-proposal)
+- May 2018, Migrant workers fighting for freedom under Lebanon’s Kefala system, [OpenDemocracy](https://www.opendemocracy.net/en/north-africa-west-asia/migrant-workers-fighting-for-freedom-under-leba/)
 - September 2017, Crossing from Tunisia to Italy - 1980s vs. today, [The New Arab](https://english.alaraby.co.uk/english/indepth/2017/9/5/crossing-from-tunisia-to-italy-1980s-vs-today)
 
 
