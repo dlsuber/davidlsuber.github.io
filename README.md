@@ -22,6 +22,9 @@ More: Twitter, Adademia.edu, GoogleScholar
 - 2020, Director and co-producer for [We the Syrians: Peace Proposal for Syria](https://www.youtube.com/watch?v=VyAxRCCDJyQ), Peace Proposal for Syria, supported by [Operazione Colomba Peace Corps](http://www.operazionecolomba.it/noisiriani).
 - 2018, Producer for [Scirocco: A Case Against Deportations](https://vimeo.com/278007474), Rosa Luxemburg Stiftung North Africa Office. 
 
+## Podcasts
+- 2019, Radio Hakaya producer and reseaercher - Brush&Bow online-radio community project in northern Lebanon, English version on [OpenDemocracy](https://www.opendemocracy.net/en/author/radio-hakaya/) and Arabic version on [رصيف22](https://raseef22.net/article/1073216-حسين-بعيدا-عن-الطائفية)
+
 ## Media articles (co-authored with Roshan De Stone)
 - February 2021, Making sense of Europe's response to the Arab Spring, [The New Arab](https://english.alaraby.co.uk/english/indepth/2021/2/3/making-sense-of-europes-response-to-the-arab-spring)
 - February 2020, Residents of Idlib: ‘Your indifference is our death sentence’, [Al Jazeera](https://www.aljazeera.com/features/2020/2/20/residents-of-idlib-your-indifference-is-our-death-sentence)
