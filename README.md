@@ -5,7 +5,7 @@ Journalist and researcher covering international migration, conflict and transna
 - Co-director of the creative journalism collective [Brush&Bow C.I.C](https://brushandbow.com).
 - Researcher and co-producer for the [Drawn to Solidarity](https://culturalfoundation.eu/stories/cosround2-border-violence-monitoring-network) ducumentary-film series on border violence and grassroots solidaritn on the Balkan route to Europe.
 
-More: Twitter, Adademia.edu, GoogleScholar
+More: [Twitter](https://twitter.com/davidlsuber), Academia.edu, ResearchGate, GoogleScholar
 
 ## Academic publications
 - (Forthcoming 2021), Pilati K., Acconcia G., Suber D.L., Chennaoui H., ‘Protest demobilization in post-revolutionary settings: trajectories to counter-revolution and to democratic transition’, Political Studies.
@@ -24,6 +24,9 @@ More: Twitter, Adademia.edu, GoogleScholar
 
 ## Podcasts
 - 2019, Radio Hakaya producer and reseaercher - Brush&Bow online-radio community project in northern Lebanon, English version on [OpenDemocracy](https://www.opendemocracy.net/en/author/radio-hakaya/) and Arabic version on [رصيف22](https://raseef22.net/keyword/1000566-راديو%20حكايا)
+
+## Exhibitions
+- 2019, Mishwar's Children Photographic Project in Akkar - Lebanon with NGO [Mishwar Lebanon](https://mishwar.org/exhibition/)
 
 ## Media articles (co-authored with Roshan De Stone)
 - 2021 February, Making sense of Europe's response to the Arab Spring, [The New Arab](https://english.alaraby.co.uk/english/indepth/2021/2/3/making-sense-of-europes-response-to-the-arab-spring)
