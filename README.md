@@ -26,7 +26,7 @@ More: [Twitter](https://twitter.com/davidlsuber), Academia.edu, ResearchGate, Go
 - 2019, Radio Hakaya producer and reseaercher - Brush&Bow online-radio community project in northern Lebanon, English version on [OpenDemocracy](https://www.opendemocracy.net/en/author/radio-hakaya/) and Arabic version on [رصيف22](https://raseef22.net/keyword/1000566-راديو%20حكايا)
 
 ## Exhibitions
-- 2019, Mishwar's Children Photographic Project in Akkar - Lebanon with NGO [Mishwar Lebanon](https://mishwar.org/exhibition/)
+- 2019, Mishwar's Children Photographic Project in Akkar - Lebanon with NGO [Mishwar Lebanon](https://tmbth.netlify.app)
 
 ## Media articles (co-authored with Roshan De Stone)
 - 2021 February, Making sense of Europe's response to the Arab Spring, [The New Arab](https://english.alaraby.co.uk/english/indepth/2021/2/3/making-sense-of-europes-response-to-the-arab-spring)
