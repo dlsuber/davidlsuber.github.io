@@ -29,6 +29,7 @@ More: [Twitter](https://twitter.com/davidlsuber), Academia.edu, ResearchGate, Go
 - 2019, Mishwar's Children Photographic Project in Akkar - Lebanon with NGO [Mishwar Lebanon](https://tmbth.netlify.app)
 
 ## Media articles (co-authored with Roshan De Stone)
+- 2021 April, Why refugee camps became a target for arson attacks during the pandemic, [The New Arab](https://english.alaraby.co.uk/english/indepth/2021/4/15/behind-the-wave-of-arson-attacks-targeting-refugee-camps)
 - 2021 February, Making sense of Europe's response to the Arab Spring, [The New Arab](https://english.alaraby.co.uk/english/indepth/2021/2/3/making-sense-of-europes-response-to-the-arab-spring)
 - 2020 February, Residents of Idlib: ‘Your indifference is our death sentence’, [Al Jazeera](https://www.aljazeera.com/features/2020/2/20/residents-of-idlib-your-indifference-is-our-death-sentence)
 - 2019 December, ‘Combatting hidden enemies’: Meet the women on the front line of de-mining Afghanistan, [The Independent](https://www.independent.co.uk/news/world/asia/afghanistan-landmine-women-taliban-attack-mena-mengal-murder-a9223896.html)
