@@ -33,7 +33,7 @@ More: [Twitter](https://twitter.com/davidlsuber), Academia.edu, ResearchGate, Go
 - 2021 February, Making sense of Europe's response to the Arab Spring, [The New Arab](https://english.alaraby.co.uk/english/indepth/2021/2/3/making-sense-of-europes-response-to-the-arab-spring)
 - 2020 February, Residents of Idlib: ‘Your indifference is our death sentence’, [Al Jazeera](https://www.aljazeera.com/features/2020/2/20/residents-of-idlib-your-indifference-is-our-death-sentence)
 - 2019 December, ‘Combatting hidden enemies’: Meet the women on the front line of de-mining Afghanistan, [The Independent](https://www.independent.co.uk/news/world/asia/afghanistan-landmine-women-taliban-attack-mena-mengal-murder-a9223896.html)
-- 2019 September, The domestic workers resisting slavery in Lebanon, [The New Internationalist](https://newint.org/features/2019/09/16/domestic-workers-resisting-slavery-lebanon)
+- 2019 September, The domestic workers resisting slavery in Lebanon, [The New Internationalist](https://newint.org/features/2019/09/16/domestic-workers-resisting-slavery-lebanon) 
 - 2019 June, The failed reconstruction of Lebanon's Nahr al-Bared Palestinian camp, [The New Arab](https://english.alaraby.co.uk/english/indepth/2019/6/11/the-failed-reconstruction-of-lebanons-nahr-al-bared-palestinian-camp)
 - 2019 April, Lebanese drug rehab programme struggles to get going, [The New Arab](https://english.alaraby.co.uk/english/indepth/2019/4/16/lebanese-drug-rehab-programme-struggles-to-get-going)
 - 2019 March, China eyes Lebanese port to launch investiment on One Belt One Road initiative, [Al Monitor](https://www.al-monitor.com/originals/2019/03/china-lebanon-tripoli-port-investments-syria-reconstruction.html)
